@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AP05
-- 👀 I’m interested in Gaming, Video Edditing, and a little Programing
-- 🌱 I’m currently learning life and how to be a better person
+- 👀 I’m interested in Gaming, Video Edditing, and Programing
+- 🌱 I’m currently learning life and working on myself
 - 💞️ I’m looking to collaborate on fun projects!
 - 📫 To reach me you can email me at anshumanp05@gmail.com
 
